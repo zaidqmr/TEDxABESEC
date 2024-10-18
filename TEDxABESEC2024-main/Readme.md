@@ -1,1 +1,0 @@
-## TEDXABESEC 2024
